@@ -1,7 +1,7 @@
 ### Olá, eu sou Leonarson Oziel.
 
 • 🔭 Apaixonado por teconologia.
-• 🌱 Estudante de Gestão da Tecnologia da Informação 3/5.
+• 🌱 Estudante de Gestão da Tecnologia da Informação 4/5.
 
 
 <div>
